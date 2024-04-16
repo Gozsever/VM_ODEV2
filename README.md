@@ -1,0 +1,2 @@
+# VM_ODEV2
+KEŞİFSEL VERİ ANALİZİ
